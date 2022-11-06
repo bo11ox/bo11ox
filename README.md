@@ -1,6 +1,5 @@
 →_→         ![Visitor Count](https://profile-counter.glitch.me/{bo11ox}/count.svg) 
 
-(⊙_⊙;)
 
 
 
@@ -9,6 +8,8 @@
 
 
 ◑﹏◐ 
+
+<img src="https://readme-jokes.vercel.app/api?hideBorder" alt="Jokes Card" />
 
 
 
