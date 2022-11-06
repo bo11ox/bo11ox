@@ -1,4 +1,6 @@
-# profile
+→_→ ![Visitor Count](https://profile-counter.glitch.me/{YOUR USER}/count.svg) 
+
+◑﹏◐ (⊙_⊙;)
 
 
-![Visitor Count](https://profile-counter.glitch.me/{YOUR USER}/count.svg)
+
