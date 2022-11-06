@@ -5,11 +5,7 @@
 
 
 
-
-
-◑﹏◐ 
-
 <img src="https://readme-jokes.vercel.app/api?hideBorder" alt="Jokes Card" />
-
+◑﹏◐ 
 
 
