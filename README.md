@@ -1,5 +1,5 @@
-:rage4:
+  :rage4:	:hurtrealbad:  :feelsgood:	:goberserk:
 
-◑﹏◐ 
+
 
 
